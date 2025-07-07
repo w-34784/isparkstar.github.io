@@ -1,2 +1,3 @@
 # isparkstar.github.io
-A website witch can be view
+一个个人网站丫~
+不要DDOS 不要DDOS 不要DDOS
